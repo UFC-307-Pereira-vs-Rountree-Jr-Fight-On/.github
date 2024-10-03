@@ -1,7 +1,7 @@
 Watch the Pay Per Fight in Sacramento's Best Sports Bar! Experience the excitement of PPV UFC fights with immersive audio that makes you feel right in the octagon.
-
+https://appbitly.com/Free
 UFC 307: Saturday, 10/5@ 7 PM
-
+Watch ufc 307 pereira vs rountree jr. fight Free -https://appbitly.com/Free
 A UFC Light Heavyweight Championship bout between current champion (also former UFC Middleweight Champion and former Glory Middleweight and Light Heavyweight Champion) Alex Pereira and Khalil Rountree Jr. will take place on October 5, 2024
 
 A UFC Women's Bantamweight Championship bout between current champion Raquel Pennington and former champion (also The Ultimate Fighter: Team Rousey vs. Team Tate bantamweight winner) Julianna Peña is expected to serve as the co-main event.
